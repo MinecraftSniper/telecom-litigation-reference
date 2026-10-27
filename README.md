@@ -46,3 +46,5 @@
 5.[最高检概括授权不能阻却侵害个人信息的行为不法](https://www.spp.gov.cn/spp/llyj/202007/t20200723_473689.shtml )
 ---
 6.[中国消费者协会点评通信领域不公平格式条款](https://zxb.ccn.com.cn/html/zxb/20221012/116126.html )
+---
+7.[盲目享用免费套餐 无力消费被判赔偿明](https://www.jsfy.gov.cn/article/24231.html)
