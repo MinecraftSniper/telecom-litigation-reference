@@ -50,3 +50,5 @@
 7.[盲目享用免费套餐 无力消费被判赔偿明](https://www.jsfy.gov.cn/article/24231.html)
 ---
 8.[电信业九大霸王条款曝光](https://zxb.ccn.com.cn/html/zxb/20141112/65353.html)
+---
+*以上是证据原始链接，核实使用*
